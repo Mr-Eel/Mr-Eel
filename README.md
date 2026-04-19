@@ -1,4 +1,6 @@
  <div align="center">
+
+<img width="825" alt=image src=https://github.com/Mr-Eel/Mr-Eel/blob/0b174da0c1001182b6032ca6e06029a1f085cbe2/tumblr_94ae48e941c71242ba20cbf68a95eaa0_199c306c_1280.webp />
   
 ![](https://komarev.com/ghpvc/?username=Mr-Eel&color=550041&label=Little-Eels)
 
@@ -42,3 +44,7 @@ $\small{\textsf{Those Cookie Run Kingdom fans, yr all mainly weird nd it doesn't
  $\small{\textsf{I go quiet most of the time, so please don't think I am ignoring you. It's either just drained energy or personal health issues.}}$
  $\small{\textsf{I forget things easily. So if yr telling me something, I might forget.}}$
  $\small{\textsf{I normally don't approach first, so please don't be afraid 2 come up to me.}}$
+<div align="center">
+</details>
+
+<img width="825" alt=image src=https://github.com/Mr-Eel/Mr-Eel/blob/0b174da0c1001182b6032ca6e06029a1f085cbe2/tumblr_94ae48e941c71242ba20cbf68a95eaa0_199c306c_1280.webp />
