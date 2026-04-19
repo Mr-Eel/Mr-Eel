@@ -23,8 +23,21 @@ $\small{\textsf{I am almost ALWAYS in the Cookie Run area, so you will find me t
   <summary> $\small{\textsf{DNI}}$ </summary>
  <div align="left">
 $\small{\textsf{Basic DNI criteria.}}$ 
-$\small{\textsf{Hazbin Hotel / Helluva Boss fans, or VivziePop fans, I don't like any of you, nor do I care if you don't support her actions.}}$
-$\small{\textsf{People who like problematic things.}}$
-$\small{\textsf{Proshippers nd Darkshippers, I just don't simply like you lot.}}$
+  
+$\small{\textsf{Hazbin Hotel / Helluva Boss fans, or VivziePop fans, I don't like any of you, nor do I care if you don't support her actions.}}$ 
+$\small{\textsf{People who like problematic things, including media that is seen as weird etc.}}$ 
+$\small{\textsf{Proshippers nd Darkshippers, I just don't simply like you lot. I have had bad experiences so I don't wish to interact.}}$ 
 <div align="center">
 </details>
+
+<div align="center">
+<details>
+  <summary> $\small{\textsf{Before You INT}}$ </summary>
+ <div align="left">
+ $\small{\textsf{I have really offensive humour, so please tell me if I make you uncomfortable at any time.}}$
+ $\small{\textsf{I say slurs I can reclaim, but only towards people I have known for a long time nd if they are comfortable with things like that being said 2 them.}}$
+ $\small{\textsf{I sometimes make my messages simple purely because I don't have the energy to type.}}$
+ $\small{\textsf{I am terrible at interacting, so please be patient with me.}}$
+ $\small{\textsf{I go quiet most of the time, so please don't think I am ignoring you. It's either just drained energy or personal health issues.}}$
+ $\small{\textsf{I forget things easily. So if yr telling me something, I might forget.}}$
+ $\small{\textsf{I normally don't approach first, so please don't be afraid 2 come up to me.}}$
